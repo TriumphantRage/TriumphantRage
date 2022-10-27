@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TriumphantRage
+- 👀 I’m interested in Anything to further my technologies resourcefulness.
+- 🌱 I’m currently learning to get coding 100% at my knowledge and use.
+- 💞️ I’m looking to collaborate on my first code. Do not care what it is just so I can grab the basics.
+- 📫 How to reach me ... Phone # 1-434-323-9991
